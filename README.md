@@ -1,2 +1,2 @@
-# MAXRAKOV.github-io
+# MAX RAKOV
 Первая работа
